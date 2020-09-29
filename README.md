@@ -1,11 +1,14 @@
 # Bri-repo-1
 
-Dogs are better than cats
+cats are better than dogs
 
-they don't scratch or hiss,
+they don't scratch or hiss,yes they do
 
-Rodents are better than birds,
+Rodents are better than pizza
 
-they're cuter and a small gift
+they're cuter and a small 
 
+Eric was here 
 
+do you like anime too?
+pizza is the best
